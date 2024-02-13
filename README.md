@@ -2,8 +2,6 @@
 
 <br>
 
-> https://dragon-h22.github.io/Simone-Portfolio-Website/
-
 <br>
 
 
